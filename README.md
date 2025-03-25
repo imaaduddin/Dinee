@@ -100,7 +100,7 @@ Dinee aims to redefine how people discover and book restaurants by making the pr
 
 Have feedback or want to collaborate?
 
-Reach out at: [your-email@example.com]  
+Reach out at: [imaaduddin27@gmail.com]  
 Follow the journey on [LinkedIn](https://www.linkedin.com/in/imaaduddin/), [Twitter](https://x.com/imaaduddinn), or [My Website](#)
 
 ---
